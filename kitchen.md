@@ -2,7 +2,7 @@
 
 ## Stove
 
-## Kitchen table
+## Kitchen table with table cloth
 
 ## Sink
 
