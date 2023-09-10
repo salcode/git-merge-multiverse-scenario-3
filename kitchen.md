@@ -2,7 +2,7 @@
 
 ## Stove
 
-## Kitchen table
+## Kitchen table withh flowers on top
 
 ## Sink
 
